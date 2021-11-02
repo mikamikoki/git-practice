@@ -1,2 +1,0 @@
-Mikami　koki@mikami
-Kdkdkd
